@@ -1,2 +1,2 @@
-# 19-Jan-3-Persistent-Political-Logics-Geographical-Differences-and-Temporal-Continuities-within-the
-Nelson, Laura K. 2015. “Persistent Political Logics: Geographical Differences and Temporal Continuities within the Women’s Moevements in Chicago and New York City.” Working paper
+# Comments on: "Persistent Political Logics: Geographical Differences and Temporal Continuities within the Women’s Moevements in Chicago and New York City"
+[Nelson, Laura K. 2015. “Persistent Political Logics: Geographical Differences and Temporal Continuities within the Women’s Moevements in Chicago and New York City.” Working paper](https://drive.google.com/file/d/0BxI6W5IIG74Fb29XS0tfbTVWNVE/view)
